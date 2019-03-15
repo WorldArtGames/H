@@ -1,0 +1,2 @@
+# H
+otvoren za vježbu
